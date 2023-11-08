@@ -7,31 +7,26 @@
 **UNIVERSIDAD CATÓLICA ¨NUESTRA SEÑORA DE LA ASUNCION¨**
 
 *Facultad de Ciencias y Tecnología*
-![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.001.png)![ref1]![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.003.png)![ref1]![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.004.png)![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.005.png)![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.006.png)![ref2]![ref3]![ref3]![ref3]![ref2]																																																																																
+																																																																															
 
 
 
 **NewBorn Guardian**
-
-![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.009.png)
 
 
 
 
 
 **Presentan**
-
-![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.010.png)	
+	
 
 - *Iván Leguizamón* 
 - *Josué Iberbuden*
 - *Alejandro Acevedo* 
 - *Robert González* 
 
-![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.011.png)
 
-**2023**
-![](Aspose.Words.cbe62814-e4e7-452a-ba7b-9564beecf994.012.png)																													
+**2023**																												
 
 **Introducción**
 
